@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+🤔I'm think about ... how to live without work~
+then, i found noting here!!!
+
 <!--
 **Anr-C/Anr-C** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
